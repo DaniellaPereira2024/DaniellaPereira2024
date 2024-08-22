@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil💙
+## Boas vindas ao meu perfil 📚
 
 Meu nome é: Daniella pereira dos santos
 
@@ -8,6 +8,8 @@ Meu nome é: Daniella pereira dos santos
 
 ### Você pode entrar em contato comigo 📬
 pereiradaniella376@gmail.com
+
+![](https://media1.tenor.com/m/f_saBHiUTz0AAAAC/cute-cat.gif)
 
 
 
