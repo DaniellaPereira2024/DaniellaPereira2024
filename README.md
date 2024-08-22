@@ -4,7 +4,10 @@ Meu nome é: Daniella pereira dos santos
 
 - Estou estudando na Alura
 - Estou me desenvolvendo na Liguagem javaScrprt
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
+### Você pode entrar em contato comigo 📬
+pereiradaniella376@gmail.com
 
 
 
